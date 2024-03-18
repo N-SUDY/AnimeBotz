@@ -1,1 +1,1 @@
-# [Try Anime Botz](https://t.me/@AnimeBotz_bot)
+[Try Anime Botz](https://t.me/AnimeBotz_bot)
